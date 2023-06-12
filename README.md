@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Wanjaliza
+- 👀 I’m interested in reading books,watching adventurous movies/series and love hiking.
+- 🌱 I’m currently a student at the UNIVERSITY OF NAIROBI taking Barchelors of Science in Mathematics.
